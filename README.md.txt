@@ -1,3 +1,3 @@
 My name is Rauan.
 190103362
-My hobby is play game.
+My hobby is reading book
